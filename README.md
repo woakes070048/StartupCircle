@@ -1,5 +1,5 @@
 # StartupCircle
-Community of local Startups founders, entrepreneurs and aspiring entrepreneurs helping each other
+Community of local Startups founders, entrepreneurs and aspiring entrepreneurs helping each other.
 
 
 Things to consider while posting to the group:
