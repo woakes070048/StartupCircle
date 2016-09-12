@@ -30,4 +30,7 @@ Please refrain from posting:
 * Acknowledgement of intent to stalk an individual or collect private information without disclosure
 * Content determined to be inappropriate, in poor taste, or otherwise contrary to the purposes of the forum
 
-Thanks.
+Circles:
+
+India | Chandigarh - https://www.facebook.com/groups/ChandigarhStartups/
+  
